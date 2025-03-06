@@ -8,3 +8,6 @@ Bum, bum, buuum...
 Sitting by the fire, we all hold hands 
 Hand in hand and hand in hand 
 Stars in the sky, from dawn to dusk
+We cheer, we cheer, we cheer
+Our C-A-M-P-F-I-R-E S-O-N-G song 
+Make it all seem okay.... 
